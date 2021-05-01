@@ -1,4 +1,5 @@
 # THE FIRE TURKEY
+Created in cooperation with Phoenix.
 
 The Hollarville Fire Turkey is a mysterious and wondrous being. It hungers for justice and offers both  wisdom and sustenance in return.
 
