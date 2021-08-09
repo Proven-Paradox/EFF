@@ -1,7 +1,7 @@
 # THE FIRE TURKEY
 Created in cooperation with Phoenix.
 
-The Hollarville Fire Turkey is a mysterious and wondrous being. It hungers for justice and offers both  wisdom and sustenance in return.
+The Hollarville Fire Turkey is a mysterious and wondrous being who wanders around the southern counties of Hollarville. It hungers for justice and offers both  wisdom and sustenance in return.
 
 You'll know the Fire Turkey by the trail of singed grass and leaves in its wake. It hatches from an egg every morning, a happy baby bird coated in yellow fire. It grows up fast, and by noon it will grow into a fine, healthy turkey, orange and yellow in its flames. By the time Sister Sun is wrapping up her work for the day, the Fire Turkey will grow aged and wise, a tiny hint of blue at the base of its flames showing how it is roasting itself. When the sun finally sets, the Fire Turkey bursts into roaring flames--though the bird is considerate enough to do this on rocky or paved areas, so as not to start brush fires. As the sun and the flames die down, what remains is a perfectly roasted Christmas dinner turkey, with a well sheltered egg inside that will hatch the Turkey anew the next sunrise.
 
