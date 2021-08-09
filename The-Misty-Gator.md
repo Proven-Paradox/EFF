@@ -1,4 +1,5 @@
 # The Misty Gator of Hollarville and Her Thousand Children
+## By Phoenix and Proven Paradox
 
 Afixed where four mountains meet out west of Hollarville is a lake covered in mist all the year long, blessed by Brother Bayou. And in that lake lives a lovely lady gator the color of evergreen trees with pink tips on her dainty scales.
 
